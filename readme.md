@@ -1,0 +1,1 @@
+Whether you're a beginner or an experienced programmer, CodeGenius is the perfect place to take your skills to the next level. With our comprehensive curriculum and expert instructors, you'll learn everything you need to know about software development and programming languages.
